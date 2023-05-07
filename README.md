@@ -30,9 +30,6 @@ https://v.z7zz.cn/
 ## 八重樱动漫
 https://iafuns.com/
 
-## 嘶哩嘶哩
-https://www.silisili.tv/
-
 ## 动漫花园
 https://www.dongmanhuayuan.com/
 
