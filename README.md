@@ -24,8 +24,20 @@ https://senfun.in/
 ## Tina ACG番剧网
 https://www.tinaacg.net/
 
-## 竹子影视
-https://v.z7zz.cn/
+## e站弹幕网
+https://www.ezdmw.site/
+
+## ococ
+https://ococ.me/
+
+## 宫下动漫
+https://arlnigdm.com/
+
+## 嘶哩嘶哩
+https://weibass.github.io
+
+## 嘟嘟
+https://zyldudu.com/
 
 ## 八重樱动漫
 https://iafuns.com/
